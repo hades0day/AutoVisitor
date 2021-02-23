@@ -1,1 +1,3 @@
 # AutoVisitor
+Gunakan alat ini dengan Bijak
+Resiko ditanggung penumpang...
